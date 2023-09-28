@@ -1,3 +1,0 @@
-# solved-
-
-Class activity
